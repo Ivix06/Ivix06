@@ -8,4 +8,4 @@ Hi, I'm a guy who tries to do things with Nintendo consoles and fails miserably 
 Hola, soy un chico que intenta hacer cosas con la consolas Nintendo fracasando miserablemente debito a mi inexperiencia o poca paciencia. Encantado de conocerte :D
 
 
-(By the way, my nickname is pronounced /ˈiviks ˈdzɛro ˈsɛi/, not /ˈaivɪks ˈzeɪroʊ ˈseɪ/ or /a̠i.bʲiː.a̠i.e̞k̚kɯ̟̊ᵝsɨᵝ d͡ze̞ɾo̞ ɾo̞kɯ̟ᵝ/. Thank you for your attention ^_^)
+(By the way, my nickname is pronounced /ˈiviks ˈdzɛro ˈsɛi/, not /ˈaivɪks ˈzeɪroʊ ˈseɪ/ or /a̠i.bʲiː.a̠i.e̞k̚kɯ̟̊ᵝsɨᵝ d͡ze̞ɾo̞ ɾo̞kɯ̟ᵝ/. Thank you for your attention ^_^) 
